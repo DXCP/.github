@@ -1,1 +1,1 @@
-🎆👷‍♂️👷‍♀️ Developer Experience Center Practise | DXCP 
+🎆👷‍♂️👷‍♀️ Developer Experience Center Program | DXCP 
