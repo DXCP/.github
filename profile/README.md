@@ -1,1 +1,3 @@
-🎆👷‍♂️👷‍♀️ Developer Experience Center Program | DXCP 
+🎆👷‍♂️👷‍♀️ DXC ~ Developer Experience Center 
+
+🤖🎬🏗️ DXCP ~ DXC Program
